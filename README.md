@@ -11,7 +11,7 @@
 
 ## ————之前推过的（在总热度榜上的文）————
 
-1.[【藕饼】转校生（1）](http://qwqpwpqaq.lofter.com/post/1d881b97_1c64ddea1)[ 作者：](http://qwqpwpqaq.lofter.com/post/1d881b97_1c64ddea1)[Valkyrie](http://qwqpwpqaq.lofter.com/post/1d881b97_1c64ddea1)
+1.[【藕饼】转校生（1）](http://mtvalhalla.lofter.com/post/1e3dda80_1c63e09d4) 作者：[Valkyrie](http://mtvalhalla.lofter.com/)
 高中校园AU，狼狗校霸哪吒x优异转校生敖丙，连载中目前已经13更，绝对的经典作品，不容错过！
 
 2.[【论坛体/藕饼】问个问题，上过床是不是不代表恋爱关系确立？（1）](http://shihouyizhiyan.lofter.com/post/1e99a304_1c64bce7c) 作者：[麻辣不加烫](http://shihouyizhiyan.lofter.com/)
@@ -180,3 +180,5 @@ Summary：敖丙从小就被教导，妖族和神仙在成年那天身上都会�
 52.[【藕饼】总角之交（1）](http://suwei991211.lofter.com/post/1ef89e03_1c6549d21) 作者：[顾沉](http://suwei991211.lofter.com/)
 现代竹马竹马，双向暗恋，甜饼无虐，番外会有🚗，连载中目前6更
 
+53.[[藕饼](论坛体)哥哥被坏孩子骗跑了怎么办?? (1)](http://evernow.lofter.com/post/1fa5e4f1_1c6592b49) 作者：[时雨烟浔](http://evernow.lofter.com/)​
+已完结！一共8更，设定中敖丙有一个妹妹，中二校霸哪吒吒×乖巧好学生敖丙丙
