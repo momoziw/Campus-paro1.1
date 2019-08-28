@@ -180,5 +180,5 @@ Summary：敖丙从小就被教导，妖族和神仙在成年那天身上都会�
 52.[【藕饼】总角之交（1）](http://suwei991211.lofter.com/post/1ef89e03_1c6549d21) 作者：[顾沉](http://suwei991211.lofter.com/)
 现代竹马竹马，双向暗恋，甜饼无虐，番外会有🚗，连载中目前6更
 
-53.[[藕饼](论坛体)哥哥被坏孩子骗跑了怎么办?? (1)](http://evernow.lofter.com/post/1fa5e4f1_1c6592b49) 作者：[时雨烟浔](http://evernow.lofter.com/)​
+53.[[藕饼]（论坛体）哥哥被坏孩子骗跑了怎么办?? (1)](http://evernow.lofter.com/post/1fa5e4f1_1c6592b49) 作者：[时雨烟浔](http://evernow.lofter.com/)
 已完结！一共8更，设定中敖丙有一个妹妹，中二校霸哪吒吒×乖巧好学生敖丙丙
