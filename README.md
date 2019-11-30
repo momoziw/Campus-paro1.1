@@ -153,7 +153,7 @@ Summary：敖丙从小就被教导，妖族和神仙在成年那天身上都会�
 连载中这是第一更，双向暗恋＋双向吃醋＋双向表白，闷骚小龙脑洞大开，自以为失恋
 
 44.[【藕饼渣】（论坛体）三分钟，我要校庆上两个学长的全部资料](http://sanlingsanhaozhuhu.lofter.com/post/2053712e_1c66cfef6) 作者：[三零三号住户](http://sanlingsanhaozhuhu.lofter.com/)
-快乐沙雕论坛体，藕饼渣无差，连载中目前2更
+[无差cp向预警]快乐沙雕论坛体，藕饼渣无差，连载中目前2更
 
 45.[【藕饼】实习奶爸 1](http://linlingennipinle.lofter.com/post/1fab8d81_1c66dc018) 作者：[light brown](http://linlingennipinle.lofter.com/)
 现代师生paro，一个一夜q后的故事，内含abo生子，连载中目前4更
